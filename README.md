@@ -3,6 +3,9 @@
                     How This Software Works
 ================================================================================
 
+https://www.youtube.com/watch?v=2Yj_l_N-fZc
+https://t.me/jinkusureverse
+
 OVERVIEW
 --------
 Jinkusu StarKiller is an advanced phishing platform that creates real-time 
