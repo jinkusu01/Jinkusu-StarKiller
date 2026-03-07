@@ -3,8 +3,8 @@
                     How This Software Works
 ================================================================================
 
-https://t.me/jinkusu01
-https://t.me/jinkusureverse
+[https://t.me/jinkusu
+https://t.me/onefortress
 https://starkiller.su
 
 OVERVIEW
